@@ -10,5 +10,7 @@ https://github.com/user-attachments/assets/c8e329af-5f5a-4f0b-bff0-d82ec78c25f6
 
 After 10 hours of training
 
-https://github.com/user-attachments/assets/ea7143be-f4d7-4771-b96e-e1e726b7dee0
+https://github.com/user-attachments/assets/d5a608c6-9724-46de-862b-a817debdb6aa
+
+
 
